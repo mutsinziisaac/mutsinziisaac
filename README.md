@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mutsinziisaac
-- 👀 I’m enthusiastically interested in coding
+- 👀 Hankering to make a difference in the tech world
 - 🌱 I’m fervently learning webdevelopment
 - 💞️ I’m looking to collaborate on learning more and team work
 - 📫 you can reach me through my email: mutsinziisaac123@gmail.com
